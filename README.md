@@ -1,0 +1,1 @@
+# Sun-iy-intellekt-amaliy-topshiriq
